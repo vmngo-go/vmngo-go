@@ -1,0 +1,2 @@
+- 👋 Oi, meu nome é Victória.
+- 👀 meu email de contato é victoria.marianunes.goncalves@escola.pr.gov.br
